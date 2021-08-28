@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
-@scjtqs 小号，为了嫖actions而创建。
+@scjtqs 被封，此号临时备用
 
 <!---
 scjtqs2/scjtqs2 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
